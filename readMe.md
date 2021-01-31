@@ -1,2 +1,2 @@
-What is Pinkalicious Delight Cake/Cupcakes?
+What are Pinkalicious Delight Cakes/Cupcakes?
 Homemade Pinkalicious Delight cake covered in a thick layer of stabilized whipped cream and fresh raspberries. If you love white velvet buttermilk cake and red velvet cake, this is the cake for you! This pretty pink cake is perfect for Valentine’s Day. Pinkalicious Delight cake is a vanilla-flavored cake. The pink color comes from just a touch of pink food coloring although you could use natural colorings like strawberry or raspberry emulsion to get that pretty pink color without any artificial colors. Also, a liquid pink food coloring is used instead of a gel. 
